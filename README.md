@@ -97,7 +97,9 @@ Through this project I gained experience in:
 
 **Indumathi Anaparthi**
 
-Aspiring Data Analyst | Power BI Enthusiast  
+Aspiring Data Analyst | Power BI Enthusiast
+Linkedln profile : https://www.linkedin.com/in/indumathi-anaparthi-97385838a?utm_source=share_via&utm_content=profile&utm_medium=member_android
+Github profile : https://github.com/indu-mathi762
 
 ---
 
